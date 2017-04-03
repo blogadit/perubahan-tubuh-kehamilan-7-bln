@@ -1,37 +1,9 @@
-## Welcome to GitHub Pages
+## Apa Saja Perubahan yang Terjadi Pada Tubuh Ibu Saat Kehamilan Sudah Memasuki Usia 7 Bulan ?
 
-You can use the [editor on GitHub](https://github.com/blogadit/perubahan-tubuh-kehamilan-7-bln/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
+Usia kehamilan ibu yang sudah menginjak 7 bulan adalah fase yang sangat penting untuk senantiasa diperhatikan perkembangannya. Mengingat fase ini ibu hamil sudah memasuki trimester akhir yang berarti menandakan tidak lama lagi persalinan akan segera tiba. Ibu hamil 7 bulan tentunya harus siap menjumpai beberapa perubahan yang tidak sama dengan 6 bulan masa kehamilan sebelumnya. Lalu, apa saja perubahan fisik yang terjadi pada ibu yang sudah memasuki [masa kehamilan 7 bulan ini ?](https://www.parentingclub.co.id/smart-stories/ini-3-cara-menghitung-usia-kehamilan-dengan-akurat) Mulai dari berat badan, jelas ini akan mengalami perubahan mengingat janin yang ada di kandungan ibu semakin bertumbuh besar dan secara otomatis juga berat badan ibu semakin bertambah saat usia kehamilan memasuki 7 bulan ini ketimbang saat 6 bulan awal kehamilan.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+Berat badan ibu semenjak [awal kehamilan](http://www.dwiaditya.web.id/2016/10/janin-trimester-pertama.html) hingga usia hamil 7 bulan ini diperkirakan mengalami kenaikan 8 sampai dengan 11 kilogram untuk idealnya. Lalu perubahan juga terjadi dalam hal sistem pencernaan dari ibu. Sebagian ibu hamil yang sudah memasuki usia kehamilan trimester akhir ini, salah satu perubahan yang dapat terjadi adalah gangguan pada sistem pencernaan yang dapat berakibat ibu mengalami sakit perut maupun buang air yang tidak teratur. Tubuh ibu hamil yang sudah memasuki usia kehamilan 7 bulan akan mengalami sebuah keadaan dimana tubuh ibu memproduksi berbagai macam hormon yang bisa menjadi penyebab sendi mengalami kelonggaran. Keadaan tersebut ini bisa membuat kaki ibu membengkak. Sehingga juga tak heran ibu yang hamil 7 bulan, sebagian juga memerlukan sepatu ataupun sandal yang berukuran lebih besar karena kakinya yang membesar. 
 
-### Markdown
+Perubahan berikutnya yang terjadi pada ibu di masa kehamilan 7 bulan ini adalah ibu akan merasa lebih sulit bernapas lantaran hal ini disebabkan karena rahim yang menekan serta juga naiknya berat dari janin yang ibu kandung. Perubahan lainnya yang bisa dialami ibu yang sudah memasuki masa kehamilan 7 bulan adalah terjadinya kram perut yang dapat muncul cenderung pada waktu malam hari. Sehingga juga dapat menyebabkan ibu sulit untuk tidur. Jika memang ibu menjumpai keadaan dimana sulit untuk tidur, maka konsultasikan hal tersebut dengan dokter supaya mendapatkan arahan yang terbaik berikutnya. 
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
-
-```markdown
-Syntax highlighted code block
-
-# Header 1
-## Header 2
-### Header 3
-
-- Bulleted
-- List
-
-1. Numbered
-2. List
-
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/blogadit/perubahan-tubuh-kehamilan-7-bln/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
-
-### Support or Contact
-
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+Dalam masa kehamilan ibu yang sudah memasuki 7 bulan ini, cairan yang mengawali keluarnya ASI sudah mulai keluar pada sebagian ibu hamil. Walaupun memang untuk masa kehamilan 7 bulan belum cukup waktunya ASI keluar. Maka dari itu tidak banyak juga ibu yang hamil di usia 7 bulan menjumpai hal tersebut. Nah, pada sisi lain ibu hamil harus senantiasa menjaga kesehatannya. Salah satunya adalah dengan mengkonsumsi makanan sehat penuh dengan gizi dan melengkapinya dengan minum susu. Dalam masa kehamilan, susu Lactamil bisa menjadi pilihan untuk konsumsi harian ibu. Karena Lactamil mempunyai kandungan banyak nutrisi yang diperlukan oleh ibu di masa kehamilannya.
